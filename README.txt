@@ -1,0 +1,2 @@
+Please kindly refer to this link for the collaboration effort on DeepNote:
+https://deepnote.com/workspace/SMU-88f2c429-0eb8-46da-b34d-94e45cf8adc1/project/Data-Mine-G2T5-Project-4e2d7258-be81-4486-bc85-234b0cc7a7d6
